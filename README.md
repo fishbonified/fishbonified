@@ -1,3 +1,2 @@
-- hi!! i’m @fishbonified (sam)
-- I love to read and that's what I spend most of my time in. I'm trying to get better at basic code languages (C++ Java Python)
-- feel free to send me your tips :D <3
+- hi! I'm Samantha Headley @fishbonified
+- Currently studying for my electrical engineering degree
